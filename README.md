@@ -1,2 +1,1 @@
-Текстовый файл csv
-https://drive.google.com/file/d/1Yp6FPZOKlwcRnfU1a_gtdRhxzCgKflhV/view?usp=sharing
+https://drive.google.com/file/d/1u6gpmTvQq9Fgrwpyg2KA04v_nTpAIm_c/view?usp=sharing
